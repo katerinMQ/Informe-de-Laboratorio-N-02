@@ -1,1 +1,1 @@
-# Informe-de-Laboratorio-N-02
+# Informe-Laboratorio-N-02-Inteligencia-de-Negocios
